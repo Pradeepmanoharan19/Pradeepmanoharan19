@@ -1,6 +1,6 @@
 # Pradeep-M
 ✉️ mpradeepengr10@gmail.com<br>
-🖇linkedin.com/in/pradeepmano<br>
+🖇[LinkedIn](https://www.linkedin.com/in/pradeepmano/)<br>
 
 🎓 Mechatronic Enginner Undergraduate from Kumaraguru College of Technology
 
@@ -8,4 +8,4 @@
 
 ### Get in touch
 
-| [Twitter](https://twitter.com/PRADEEPM_7)) | [LinkedIn](https://www.linkedin.com/in/pradeepmano/) | [Medium](https://medium.com/@pradsanth) | [Instagram](https://www.instagram.com/itz_me_pradeep._/) |
+| [Twitter](https://twitter.com/PRADEEPM_7) | [LinkedIn](https://www.linkedin.com/in/pradeepmano/) | [Medium](https://medium.com/@pradsanth) | [Instagram](https://www.instagram.com/itz_me_pradeep._/) |
